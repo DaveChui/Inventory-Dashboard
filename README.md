@@ -16,7 +16,7 @@ Retail businesses lose millions annually through:
 
 **Real Impact**: At my previous role, procedural losses exceeded KES 1.5M monthly.
 
----
+---  ---
 
 ## ✅ The Solution
 
